@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ItsLucas45
+- 👀 I’m interested in Video games and math
+- 💞️ I’m looking to collaborate on yt videos
+- 📫 My discord is ItsLucas45#9889!
+- Friend me or DM me if you have any questions!
